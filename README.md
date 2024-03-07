@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me - through LinkedIn 
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I am always ready to learn and teach someone until they learn 
+- ⚡ Fun fact:  I think i am funny
 
 <!---
 DhikshaG/DhikshaG is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
